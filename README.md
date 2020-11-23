@@ -30,16 +30,4 @@
 #Such as redirecting to another website and back to the origin website
 
 
-
-
-
-
-
-
-
-
-
-
-
-
 ![ Alt Text](https://media.giphy.com/media/4LFgfkeGsAe8rahtMg/giphy.gif)
