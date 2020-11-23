@@ -5,26 +5,4 @@
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-![ Alt Text](https://gph.is/g/4oK9Bj5)
+![ Alt Text](https://media.giphy.com/media/CWYPkXNOW0lDMRBlkN/giphy.gif)
